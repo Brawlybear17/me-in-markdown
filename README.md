@@ -1,5 +1,9 @@
-# me-in-markdown
 
-## Hello my name is Daniel Villegas. I currently attend Chatsworth charter highschool and am in the 10th Grade. I am very excited for the new year as I want to make new friends and be able to learn more in my current classes.
+# Introduction
+### Hello my name is Daniel Villegas. I currently attend Chatsworth charter highschool and am in the 10th Grade. I am very excited for the new year as I want to make new friends and be able to learn more in my current classes. Another thing that I wanted to share was my family, I have both my parents and have a sister, I also have 2 pets, 1 dog, and 1 bird. I really hope to be able to have a good 10th grade year and maybe even have a better year than last year.
 
-## I hope to be able to learn more about coding in this class because I have always been very interested in coding I just never got into it, and I feel with this class I will be able to become better at it. Some goals I have for this school year is I want to be able to do things 
+### I hope to be able to learn more about coding in this class because I have always been very interested in coding I just never got into it, and I feel with this class I will be able to become better at it. Some goals I have for this school year is I want to be able to do things that I wouldn't have been able to do last year like certain math equations, coding, or just becoming a better presenter. A favorite memory I had over The summer with my friends was being able to play video games with them and sharing new memories with all of them. A future aspiration I have is to attend a good college or a college I really want to attend like UCLA.
+
+### This summer I was able to travel to a few places nearby, like the aquarium of the pacific and the zoo, these were very fun places to visit and being with my family made it a much better experience. A favorite food that I had during the summer was fried rice, I really enjoy this because my family doesn't eat it as often and when we do its ussually very good. The most memorable experience i had during the summer was passing my written driving test, this was good event for me as I studied very hard for the test and was able to past the test. A sport I participate in is basketball, I really enjoy playing basketball with friends and it lets us connect with each other. A unique fact about myself is that I have broken a bone, I broke it in around 2nd grade and had to be in a cast for around 3 months before I was able to be free of it.
+
+# My playlist
