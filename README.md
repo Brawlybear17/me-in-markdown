@@ -7,3 +7,5 @@
 ### This summer I was able to travel to a few places nearby, like the aquarium of the pacific and the zoo, these were very fun places to visit and being with my family made it a much better experience. A favorite food that I had during the summer was fried rice, I really enjoy this because my family doesn't eat it as often and when we do its ussually very good. The most memorable experience i had during the summer was passing my written driving test, this was good event for me as I studied very hard for the test and was able to past the test. A sport I participate in is basketball, I really enjoy playing basketball with friends and it lets us connect with each other. A unique fact about myself is that I have broken a bone, I broke it in around 2nd grade and had to be in a cast for around 3 months before I was able to be free of it.
 
 # My playlist
+
+[My playlist](https://open.spotify.com/playlist/5ihtnDhGM0XfiDy2eBl2zL)
