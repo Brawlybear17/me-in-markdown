@@ -9,3 +9,7 @@
 # My playlist
 
 [My playlist](https://open.spotify.com/playlist/5ihtnDhGM0XfiDy2eBl2zL)
+
+# My Collage
+
+![alt text](image.png)
